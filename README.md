@@ -40,5 +40,4 @@ it may not be relevant to your field. Hopefully laying out what I did will help 
 Enjoy! <br>
 -af
 <br><Br>
-  
- Full disclosure, this is not a blank template. Trying to spend my summer building good routines and practices and setting up core items so that they will only require minor revisions as I move into the rest of this crazy PhD journey. 
+
